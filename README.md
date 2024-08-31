@@ -1,0 +1,1 @@
+# -NextDNS-Freedom-Surfando-a-Web-Sem-ADS-e-Sem-Censura-
